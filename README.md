@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LOPA890421HVZPXL04
+LOPA890421HVZPXL04
